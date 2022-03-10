@@ -6,10 +6,10 @@
 - 💞️ I’m looking to collaborate on any CI/CD stuff you may need a hand with, Auth workflows, api design... Get at me, I'm pretty well versed.
 - 📫 me at jakobvendegna dot dev
 - ✈️ I travel a lot, work remotely, and wouldn't change a thing.
-- 🎹 I play the synthesizer and do some production [SoundCloud](https://soundcloud.com/jakob-vendegna)
+- 🎹 I play the synthesizer and do some production [SoundCloud](https://soundcloud.com/jaekfromstaetfarm).
 - 👨‍💻 I'm a principal level platform engineer with 20 years of professional development behind me. It's been a long journey to get where I am. 11 years of Ops related work experience.
 - 👔 [LinkedIn](https://www.linkedin.com/in/jakob-vendegna/)
-- ❓ Get at me, ask personal questions. I'll add the answer here.
+
 
 ## Mantra: Accountability
 
