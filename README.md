@@ -13,23 +13,23 @@
 
 ## Mantra: Accountability
 
-Don't do things you can't accept the consequences for (Looking at you treasonous cowards from 1/6/21). Sometimes a speeding ticket is merely a convenience fee. Getting arrested is not. I spent one night in jail in my whole life. I won't go back. So I don't do things that could land me there.
+Don't do things you can't accept the consequences for. I'm the first to admit when I'm wrong, I try to learn from my mistakes and at the end of the day, laugh them off.
 
 ## Best Feature: Ability to learn at a rapid pace
 
-God bless the folks who actually update documentation, I wouldn't be here without them.
+Bless the folks who maintain accurate documentation, I wouldn't be here without them.
 
-## Biggest Shortcoming: I speak my mind without filter, but I'm working on it.
+## Biggest Shortcoming: I have been known speak my mind without filter, but I'm working on it.
 
-I want to be in a leadership role. Leaders listen first and speak last. I've read several books on the subject: Critical Conversations, Radical Candor, HTWF&IP and am employing these practices daily.
+Leaders listen first and speak last. I've read several books on the subject: Critical Conversations, Radical Candor, HTWF&IP and am employing these practices daily to help foster better relationships both in my personal and professional life.
 
 ## Best Animal: 🦨
 
-Somebody has to like them. Also I had a neighbor with a pet skunk (stink glands removed) and it was the softest cuddliest little critter ever. For real. I love skunks.
+Somebody has to like them. I had a neighbor with a pet skunk (stink glands removed) and it was the softest cuddliest little critter ever. For real. I love skunks.
 
 ## Favorite song
 
-To hard, I love music. Here are some of my favorites.
+To hard, I love music. Here are some of my recent favorites.
 
 ✊🏿 📣 All of [Kendrick Lamar](https://open.spotify.com/artist/2YZyLoL8N0Wb9xBt1NhZWg?si=YYSwF5VWQCmbbMMONZX_Lg&dl_branch=1). Every single track without exception.
 
@@ -48,6 +48,8 @@ Not rap/hip-hop/grime:
 📼 [Oneohtrix Point Never - Long Road Home](https://open.spotify.com/track/31Ocb5xOyTkjIyv7FdBF05?si=9e19d5a652374b1b) - We just deny that the truth is untold - No one to rally us both
 
 🎙️ [070 Shake - Morrow](https://open.spotify.com/track/3sIoWQZbJqUKj5iELz8eTA?si=b745b3c88bdb413e) - I know, it's hard to swallow. I don't know if I'll be here tomorrow.
+
+🧚 [Spellling - Magic Act](https://open.spotify.com/track/4BFpYx1z30gmkcZhkNfCCo?si=815f17ddadc24ac3) - It's like a supergroup of all the influences from my childhood. Like if a Disney princess wanted to rock your face off.
 
 ## Favorite Historical Figure
 
